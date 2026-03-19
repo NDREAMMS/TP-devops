@@ -1,3 +1,3 @@
 Mbote
- Eu sou de Nael
+ Eu sou de Gabon
 
